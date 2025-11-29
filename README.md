@@ -64,7 +64,7 @@ This analysis empowers HR departments and data-driven organizations to:
 ## 👨‍💼 Developed By
 **Suryavhi Das**  
 _Data Analyst Intern | Unified Mentor Pvt. Ltd._  
-🔗 [LinkedIn Profile](www.linkedin.com/in/suryavhi-das-a95094351)
+🔗 [LinkedIn Profile](www.linkedin.com/in/suryavhi-das-b8825538a)
 
 ---
 
